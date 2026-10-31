@@ -1,4 +1,4 @@
-# Taxi „Tarik" – tarik-taxi.com
+# Taxi „Tarik“ – tarik-taxi.com
 
 Stranica s dugmadima: poziv, Viber, WhatsApp, Messenger, SMS.
 
